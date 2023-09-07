@@ -1,1 +1,1 @@
-# Unveiling_Marget_Insights_NM2023TMID12131
+# Unveiling_MarKet_Insights_NM2023TMID12131
